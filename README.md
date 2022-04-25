@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @katrindakatrin
+- 👀 I’m interested in documentation.
+- 🌱 I’m currently learning how to contribute to other people's projects.
+- 💞️ I’m looking to collaborate on your project.
+- 📫 You can reach me on telegram: katrindakatrin.
